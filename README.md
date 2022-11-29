@@ -1,4 +1,4 @@
-**Rolled Over Privacy Policy**
+**Privacy Policy**
 
 Alex Ermolaev built the Rolled Over app as a Free app. This SERVICE is provided by Alex Ermolaev at no cost and is intended for use as is.
 
